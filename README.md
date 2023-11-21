@@ -1,1 +1,0 @@
-# somegmphz.github.io
